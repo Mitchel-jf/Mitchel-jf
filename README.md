@@ -10,7 +10,7 @@
 
 - 👯 I’m looking to collaborate on **OpenSource Projects**
 
-- 📫 How to reach me **febemitch1@gmail.com**
+- 📫 How to reach me **febemitch3@gmail.com**
 
 - ⚡ Fun fact **I love to sing.**
 
